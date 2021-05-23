@@ -1,2 +1,2 @@
-20213089	Choi minho
+Choi minho:20213089
 kookmin Univ. SW dept
